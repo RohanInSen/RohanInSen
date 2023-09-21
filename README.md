@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Rohan Sen
+- 👀 I’m interested in anything and everything related to data.
+- 🌱 I’m currently studying Business Analytics at Isenberg School of Management (UMass Amherst)
+- 📫 You can reach me on mailtorohansen@gmail.com
